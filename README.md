@@ -18,4 +18,5 @@
 ## with the start of 4th day ,i got to know that there was my first BEEE lecture where professor harminder kaur give us some introduction about subject and then chemistry lecture which was taken by professor Mandeep kaur where she taught us about the conduct of examination and chemistry marking system, then we got our lunch break then after lunch break we have to report at TCC seminar hall and submit adhaar photocopy for formation of cllge id card
 with this 5th day of college ended...
 # Day 6 (6th August)
-## with the start of 6th day ,i got to know that there was
+## with the start of 6th day ,i got to know that there was my second class of chemistry (first lecture)
+where our professor taught us some basics of chemistry organic and inorganic and some topics related to rusting then we had lecture of maths where professor gagandeep kaur taught us marking scheme of maths examination then also she takes our intro then we had our break
