@@ -19,4 +19,4 @@
 with this 5th day of college ended...
 # Day 6 (6th August)
 ## with the start of 6th day ,i got to know that there was my second class of chemistry (first lecture)
-where our professor taught us some basics of chemistry organic and inorganic and some topics related to rusting then we had lecture of maths where professor gagandeep kaur taught us marking scheme of maths examination then also she takes our intro then we had our break
+where our professor taught us some basics of chemistry organic and inorganic and some topics related to rusting then we had lecture of maths where professor gagandeep kaur taught us marking scheme of maths examination then also she takes our intro then we had our break. After the break, we attended sessions in the auditorium where we were explained about SWAYAM NPTEL courses. They
