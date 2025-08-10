@@ -15,4 +15,7 @@
 # Day 4 (4th August)
 ## with the start of 4th day ,i got to know that there  was my first ever lecture in college,I was very excited,Our first lecture was of P2P where basics of C++ were taught by our seniors. They took doubt of every student to make them understand properly. After P2P lecture, we had lecture of English where Prof. Manjot Kaur educated us about the subject basics and took introductions from all of us. After our lectures, we were taken to auditorium where we attened Dr.Priya Darshni mam's 2nd lecture on UHV.It was an inspiring and educational session of her. We learned how to balance physical and mental health, to be kind and to respect others feelings and opinions. After this,The Causmic Club team also showcased their vibrant initiatives,giving freshers glimpse into creativity,leadership and innovation.They suggested us to be a part of this club. Then we were given important information about laptops and which one to buy if we are planning to do so.With this, our 4th day was over...
 # Day 5 (5th august)
-## with the start of 4th day ,i got to know that there was my first BEEE lecture then chemistry lecture
+## with the start of 4th day ,i got to know that there was my first BEEE lecture where professor harminder kaur give us some introduction about subject and then chemistry lecture which was taken by professor Mandeep kaur where she taught us about the conduct of examination and chemistry marking system, then we got our lunch break then after lunch break we have to report at TCC seminar hall and submit adhaar photocopy for formation of cllge id card
+with this 5th day of college ended...
+# Day 6 (6th August)
+## with the start of 6th day ,i got to know that there was
